@@ -67,4 +67,4 @@ This privacy policy page was created at [privacypolicytemplate.net](https://priv
 
 **Date**
 
-2019-08-19
+2019-08-21
